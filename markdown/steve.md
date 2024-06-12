@@ -1,0 +1,7 @@
+# Introduction
+
+Everything can change in an instant. When the doctor told me I had a mass in my large intestine, I felt an ice-cold tingle run through me. We didn't know what it was at that point, but from that moment, my whole world seemed to pivot around me.
+
+Everyone tells you not to worry, and not to speculate. There is no point in worrying about things you can't change, but changing something is not the same as affecting it; a little worry, and some speculation (or as I call it, preparation) can provide the fire to motivate. I had a lot of time to research and think about what was happening to me, and I reckoned there was a 50/50 chance on a tumor and bowel cancer, or a nasty inflammatory disease. Thinking about what this might mean gave me the impetus to chase the next appointment, and get things moving. Nearly two weeks later, when a tumor and lesion appeared on the screen during my colonoscopy, I didn't really feel anything. At least I knew the nature of the beast. A little bit of speculation had prepared me for what was coming. 
+
+In two weeks, that had shifted everything. Thoughts about my career and aspirations, my frustrations, all flew out of the window to be replaced by a crushing concern for Jess, Arthur, and Ivy.
